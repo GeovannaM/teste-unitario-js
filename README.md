@@ -1,5 +1,0 @@
-# treinamento
-# treinamento
-
-
-
